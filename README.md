@@ -1,4 +1,5 @@
-### HI MY NAME IS BOSELLINHO GAMEPLAY AND I SEX WITH LADIES ❤️😍❤️‍🔥🐒🦍👼🇯🇲🥇:godmode:
+### HI MY NAME IS BOSELLINHO GAMEPLAY AND I SEX WITH LADIES ❤️
+Discord:yToeny
 <!--
 **bosellinho/bosellinho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
